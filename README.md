@@ -1,0 +1,5 @@
+- Always being ready to do some cool things.
+- Always learning and coding.
+- Always thinking positively.
+- Always being chill.
+- Always skiping others' point of view.
